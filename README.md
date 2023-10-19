@@ -1,5 +1,5 @@
 # 💫 About Me:
-Oh Hello! I'm a tech and programming nerd who absolutely loves taking on challenges
+Yo! I'm a tech and programming nerd who absolutely loves taking on challenges
 
 
 ## 🌐 Socials:
